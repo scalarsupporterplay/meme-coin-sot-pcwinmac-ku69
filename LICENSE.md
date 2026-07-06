@@ -1,4 +1,4 @@
-# 
+# VIP meme coin sniper bot add-ons for Mac OS | Secure meme coin sniper bot add-ons for PC Windows. Featuring slippage control and buy tax detection — optimized for maximum performance on every platform.
 
 
 
